@@ -1,0 +1,1 @@
+# skuteczny-telefon-obrotowy
